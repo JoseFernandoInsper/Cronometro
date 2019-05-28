@@ -1,3 +1,3 @@
 # Cronometro
-asnnjadsfnasdfnasdkfnasldkfjan  asdjnaskdasnndjak
+asnnjadsfnasdfnasdk
 ss
